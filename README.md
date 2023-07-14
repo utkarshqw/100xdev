@@ -1,2 +1,2 @@
 # 100xdev
-Harkirat's course
+Harkirat sir course
